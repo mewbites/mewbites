@@ -3,6 +3,6 @@
 <p align="center"></p>
 <div align="center">
 
-[ata](https://mewbites.atabook.org/) [straw](https://mewbites.straw.page/)
+[rentry♡](https://rentry.co/gurire) [ata](https://mewbites.atabook.org/) [straw](https://mewbites.straw.page/)
 </div>
 
