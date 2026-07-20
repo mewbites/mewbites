@@ -1,4 +1,4 @@
-<p align="center"> ${\textsf{\color{#811a1a}idk what to put on this}}$
+<p align="center"> ${\textsf{\color{#811a1a}all i feel is hate}}$
 <div align="center">
 <img align="center" src="https://static.wikia.nocookie.net/forsaken2024/images/3/30/1eggsreworks.png/revision/latest?cb=20260209234920" width="600">
 
