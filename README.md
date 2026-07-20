@@ -4,4 +4,5 @@
 
 [rentry♡](https://rentry.co/gurire)  [ata](https://mewbites.atabook.org/)  [rentry](https://rentry.org/mewbites)
 </div>
-
+<p align="center"><img src="https://watermelon.crd.co/assets/images/gallery15/e227a39a.gif?v=14238bdb" alt=""></p>
+<div align="center">
