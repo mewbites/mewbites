@@ -8,6 +8,6 @@
 
 [rentry](https://rentry.org/mewbites)
 </div>
-<p align="center"><img src="https://64.media.tumblr.com/de3ddff3a39ad981c1766da60dac810f/0267cbb62ed7e3e6-db/s75x75_c1/7bde32aec8eeedd466ef9fc5aa252032444ff035.gifv" alt=""></p>
+<p align="center"><img src="https://64.media.tumblr.com/f527b17efc563002406ba3bc1774a7fc/4e68df8d5bf7e5ff-aa/s75x75_c1/a2ca1a3c11cf8a7d30d5f04224d1e99ca66ba3f1.gifv" alt=""></p>
 <div align="center">
 <img align="center" src="https://64.media.tumblr.com/a980338c473f6b0963fa29c2d46e64d5/876b5f67c77e33be-f9/s2048x3072/3344a5b1cdb26ce1e8064aed3d07caf36150d22d.pnj">
