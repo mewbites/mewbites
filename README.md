@@ -1,4 +1,4 @@
-<p align="center"> ${\textsf{\color{#582f27}dfgdgdfgdg}}$
+<p align="center"> ${\textsf{\color{#D0415A}dfgdgdfgdg}}$
 <div align="center">
 <img align="right" src="https://static.wikia.nocookie.net/verityminecraft/images/9/91/Thatmobs-pfp.jpg/revision/latest?cb=20260614000627" width="400">
 
