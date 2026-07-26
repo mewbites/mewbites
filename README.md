@@ -6,7 +6,7 @@
 
 [ata](https://mewbites.atabook.org/)
 
-[rentry](https://rentry.org/mewbites)
+[straw](https://mewbites.straw.page/)
 </div>
 <p align="center"><img src="https://64.media.tumblr.com/f527b17efc563002406ba3bc1774a7fc/4e68df8d5bf7e5ff-aa/s75x75_c1/a2ca1a3c11cf8a7d30d5f04224d1e99ca66ba3f1.gifv" alt=""></p>
 <div align="center">
