@@ -1,6 +1,6 @@
 <p align="center"> ${\textsf{\color{#D0415A}dfgdgdfgdg}}$
 <div align="center">
-<img align="right" src="https://static.wikia.nocookie.net/verityminecraft/images/9/91/Thatmobs-pfp.jpg/revision/latest?cb=20260614000627" width="400">
+<img align="right" src="https://64.media.tumblr.com/4b6796b113a940db6bda407bf7d58515/10eb43fe490a5484-12/s400x600/6ff652f51cf0a1c203d0f2e17d082df24d966acc.gifv" width="500">
 
 [rentry♡](https://rentry.co/gurire)
 
