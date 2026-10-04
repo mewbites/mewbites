@@ -1,5 +1,5 @@
 <div align="center">
-<img align="center" src="https://64.media.tumblr.com/a62a2c455ed24dbd125dc9455e35f2fb/tumblr_nwvh82Yl9z1sz1mubo1_250.pnj" width="300">
+<img align="center" src="https://64.media.tumblr.com/6ec9c2054b5323d4286b262e105dba2d/tumblr_nwvjlqoVZg1sz1mubo1_400.pnj" width="500">
 <div align="center">
 
 [strawpage](https://mewbites.straw.page/)  [atabook](https://mewbites.atabook.org/)
